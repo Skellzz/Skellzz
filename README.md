@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Skellzz
--guys it does NOT "need to be an APP 😝" I DON'T HAVE ANY MORE STORAGE SPACE FOR APPS
+- I will not make you code yall stupid bastards
 - ༺𓆩☠︎︎𓆪༻⋆
 - ☠︎︎𓆩𓆩♡𓆪𓆪 ☠︎︎
 - ⚠︎⚠︎⚠︎
